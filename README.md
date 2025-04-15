@@ -1,0 +1,1 @@
+# dicapelli_consultoria_ia
